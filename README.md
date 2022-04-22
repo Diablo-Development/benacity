@@ -1,2 +1,4 @@
 # benacity
-Joke fork of Tenacity
+Joke fork of Tenacity. Don't expect great quality.
+
+cedo if ur reading this love you no dmca cuz this is a joke 🙏
